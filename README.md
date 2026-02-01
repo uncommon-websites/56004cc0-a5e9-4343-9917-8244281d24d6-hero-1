@@ -1,0 +1,2 @@
+# 56004cc0-a5e9-4343-9917-8244281d24d6-hero-1
+Hero section variant 1 for 56004cc0-a5e9-4343-9917-8244281d24d6
